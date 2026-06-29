@@ -1,4 +1,4 @@
-
+evade advanced Script is the best evade Script, featuring infinite resources and auto-collect. Safe and powerful for all your needs.
 
 
 
